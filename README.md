@@ -12,4 +12,4 @@ Ingrid.aparecida.luz@escola.pr.gov.br
 
 @ingridlinds
 
-![](https:// média.tenor.com/
+![](https:// média.tenor.com/i711TDaTPtUAAAAC/naruto.gif)
