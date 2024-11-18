@@ -11,5 +11,3 @@ Meu nome é Ingrid Aparecida da luz
 Ingrid.aparecida.luz@escola.pr.gov.br
 
 @ingridlinds
-
-![](https:// média.tenor.com/i711TDaTPtUAAAAC/naruto.gif)
